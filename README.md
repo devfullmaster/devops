@@ -1,1 +1,3 @@
-BootCamp DevOps Carrefour junto com Dio.me
+BootCamp DevOps Carrefour. !!
+
+Estudar Estudar Estudar
